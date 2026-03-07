@@ -1,1 +1,0 @@
-# teaching_IC_2026sp
